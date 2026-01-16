@@ -1,6 +1,6 @@
 <a href="https://imgbox.com/Mw5CdpII" target="_blank"><img src="https://images2.imgbox.com/58/9d/Mw5CdpII_o.png" alt="image host"/></a>
 
- ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=strvbykimi☆)
+ ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=‧˚꒰💖୭ᵎ-strawberrys)
 
 Check out my Art [here](https://cara.app/defxmafuui)
 
