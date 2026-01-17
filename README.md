@@ -10,6 +10,8 @@ Check out my Art [here](https://cara.app/defxmafuui)
 
  [strawpage](https://soukokul0ve.straw.page)
 
+ <a href="https://imgbox.com/aySP0Zf6" target="_blank"><img src="https://images2.imgbox.com/4a/13/aySP0Zf6_o.png" alt="image host"/></a>
+
 [eng Prounouns](https://en.pronouns.page/@mafuiisato)
 
 [de Prounouns](https://pronomen.net/@mafuiisato)
