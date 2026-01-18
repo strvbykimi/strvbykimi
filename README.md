@@ -1,4 +1,6 @@
-<a href="https://imgbox.com/Mw5CdpII" target="_blank"><img src="https://images2.imgbox.com/58/9d/Mw5CdpII_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/ogFDzRqO" target="_blank"><img src="https://images2.imgbox.com/c1/2e/ogFDzRqO_o.png" alt="image host"/></a>
+
+<a href="https://imgbox.com/aySP0Zf6" target="_blank"><img src="https://images2.imgbox.com/4a/13/aySP0Zf6_o.png" alt="image host"/></a>
 
  ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=‧˚꒰💖୭ᵎ-strawberrys)
 
@@ -10,7 +12,7 @@ Check out my Art [here](https://cara.app/defxmafuui)
 
  [strawpage](https://soukokul0ve.straw.page)
 
- <a href="https://imgbox.com/aySP0Zf6" target="_blank"><img src="https://images2.imgbox.com/4a/13/aySP0Zf6_o.png" alt="image host"/></a>
+ <a href="https://imgbox.com/Mw5CdpII" target="_blank"><img src="https://images2.imgbox.com/58/9d/Mw5CdpII_o.png" alt="image host"/></a>
 
 [eng Prounouns](https://en.pronouns.page/@mafuiisato)
 
