@@ -1,6 +1,4 @@
-<a href="https://imgbox.com/ogFDzRqO" target="_blank"><img src="https://images2.imgbox.com/c1/2e/ogFDzRqO_o.png" alt="image host"/></a>
-
-<a href="https://imgbox.com/aySP0Zf6" target="_blank"><img src="https://images2.imgbox.com/4a/13/aySP0Zf6_o.png" alt="image host"/></a>
+<a href="https://imgbox.com/Mw5CdpII" target="_blank"><img src="https://images2.imgbox.com/58/9d/Mw5CdpII_o.png" alt="image host"/></a>
 
  ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=‧˚꒰💖୭ᵎ-strawberrys)
 
@@ -12,7 +10,8 @@ Check out my Art [here](https://cara.app/defxmafuui)
 
  [strawpage](https://soukokul0ve.straw.page)
 
- <a href="https://imgbox.com/Mw5CdpII" target="_blank"><img src="https://images2.imgbox.com/58/9d/Mw5CdpII_o.png" alt="image host"/></a>
+ ![Your Banner](https://img1.picmix.com/output/pic/normal/2/4/6/7/12877642_9c779.gif)
+
 
 [eng Prounouns](https://en.pronouns.page/@mafuiisato)
 
@@ -24,4 +23,6 @@ Check out my Art [here](https://cara.app/defxmafuui)
 
 ![Your Banner](https://camo.githubusercontent.com/b43306aa72592ea9b21f71a78cb356d779a77f66c93719547ce7b669a444f3d8/68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067)
 
-![Your Banner](https://img1.picmix.com/output/pic/normal/2/4/6/7/12877642_9c779.gif)
+<img src="https://images2.imgbox.com/c1/2e/ogFDzRqO_o.png" alt="image host"/></a>
+
+<a href="https://imgbox.com/aySP0Zf6" target="_blank"><img src="https://images2.imgbox.com/4a/13/aySP0Zf6_o.png" alt="image host"/></a>
