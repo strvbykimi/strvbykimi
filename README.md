@@ -1,16 +1,16 @@
-<a href="https://imgbox.com/Mw5CdpII" target="_blank"><img src="https://images2.imgbox.com/58/9d/Mw5CdpII_o.png" alt="image host"/></a>
+  ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+<a href="https://imgbox.com/x7G2165s" target="_blank"><img src="https://images2.imgbox.com/0f/dc/x7G2165s_o.jpg" alt="image host"/></a>
+
 
  ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=‧˚꒰💖୭ᵎ-strawberrys)
 
 Check out my Art [here](https://cara.app/defxmafuui)
 
-
 [ata](https://defxmafuui.atabook.org/) 
 
+[strawpage](https://soukokul0ve.straw.page)
 
- [strawpage](https://soukokul0ve.straw.page)
-
- ![Your Banner](https://img1.picmix.com/output/pic/normal/2/4/6/7/12877642_9c779.gif)
+ <a href="https://imgbox.com/UvVcorQl" target="_blank"><img src="https://images2.imgbox.com/7e/b4/UvVcorQl_o.jpg" alt="image host"/></a>
 
 
 [eng Prounouns](https://en.pronouns.page/@mafuiisato)
@@ -21,8 +21,7 @@ Check out my Art [here](https://cara.app/defxmafuui)
               
     any other Links is on my Profile
 
-![Your Banner](https://camo.githubusercontent.com/b43306aa72592ea9b21f71a78cb356d779a77f66c93719547ce7b669a444f3d8/68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067)
+──★ " Is this a new way of saying 
 
-<img src="https://images2.imgbox.com/c1/2e/ogFDzRqO_o.png" alt="image host"/></a>
+---- 'I love you?'."
 
-<a href="https://imgbox.com/aySP0Zf6" target="_blank"><img src="https://images2.imgbox.com/4a/13/aySP0Zf6_o.png" alt="image host"/></a>
