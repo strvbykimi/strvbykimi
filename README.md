@@ -19,7 +19,7 @@ Check out my Art [here](https://cara.app/defxmafuui)
 
 [Pin](https://pin.it/5jP8RpfSU)
               
-    any other Links is on my Profile
+    any other Link is on my Profile
 
 ──★ " Is this a new way of saying 
 
