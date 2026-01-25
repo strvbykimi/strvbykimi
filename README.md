@@ -1,5 +1,7 @@
   ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
-<a href="https://imgbox.com/T6cOebiX" target="_blank"><img src="https://images2.imgbox.com/f8/19/T6cOebiX_o.jpg" alt="image host"/></a>
+ 
+  WOOF WOOF FEM ISAGI   ![Your banner](https://files.catbox.moe/ix84h5.gif)
+<a href="https://imgbox.com/jcGFNbfa" target="_blank"><img src="https://images2.imgbox.com/d1/a3/jcGFNbfa_o.jpg" alt="image host"/></a>
 
 
  ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=‧˚꒰💖୭ᵎ-strawberrys)
