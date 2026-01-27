@@ -1,10 +1,10 @@
-  ˚₊‧꒰ა ✦ ໒꒱ ‧₊˚
+<a href="https://imgbox.com/CiSn8JGg" target="_blank"><img src="https://images2.imgbox.com/e1/a1/CiSn8JGg_o.png" alt="image host"/></a>
+
+ <a href="https://imgbox.com/GK3Pmw2j" target="_blank"><img src="https://images2.imgbox.com/d0/94/GK3Pmw2j_o.png" alt="image host"/></a>
  
-  WOOF WOOF IT'S DAZAI!   ![Your banner](https://files.catbox.moe/ix84h5.gif)
-<a href="https://imgbox.com/Od9xnXHZ" target="_blank"><img src="https://images2.imgbox.com/4b/c8/Od9xnXHZ_o.jpg" alt="image host"/></a>
+<a href="https://imgbox.com/yzbrql6f" target="_blank"><img src="https://images2.imgbox.com/c4/95/yzbrql6f_o.png" alt="image host"/></a>
 
-
- ![](https://komarev.com/ghpvc/?username=strvbykimi&color=ff69b4&label=‧˚꒰💖୭ᵎ-strawberrys)
+ ![](https://komarev.com/ghpvc/?username=strvbykimi&color=lightgrey&label=𑣲sky-casino)
 
 Check out my Art [here](https://cara.app/defxmafuui)
 
@@ -17,10 +17,6 @@ Check out my Art [here](https://cara.app/defxmafuui)
 ──★   [de Prounouns](https://pronomen.net/@mafuiisato)
               
  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ 
-  
-   𝘐𝘴 𝘵𝘩𝘪𝘴 𝘢 𝘯𝘦𝘸 𝘸𝘢𝘺 𝘰𝘧 𝘴𝘢𝘺𝘪𝘯𝘨 
-  
-  "𝘐 𝘭𝘰𝘷𝘦 𝘺𝘰𝘶"?
  
-╰─..★.──────────╯
+<a href="https://imgbox.com/TVJQmRYV" target="_blank"><img src="https://images2.imgbox.com/4e/6c/TVJQmRYV_o.png" alt="image host"/></a>
 
