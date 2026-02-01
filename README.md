@@ -9,8 +9,8 @@ Check out my Art [here](https://cara.app/defxmafuui)
 [strawpage](https://soukokul0ve.straw.page)
 ──★ [Pin](https://pin.it/5jP8RpfSU)
  
-   [eng Prounouns](https://en.pronouns.page/@mafuiisato)
-──★   [de Prounouns](https://pronomen.net/@mafuiisato)
+   [eng Prounouns](https://en.pronouns.page/@yoichiirl)
+──★   [de Prounouns](https://pronomen.net/@yoichiirl)
               
  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ 
  
