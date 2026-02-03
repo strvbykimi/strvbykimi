@@ -4,7 +4,7 @@
 
 Check out my Art [here](https://cara.app/defxmafuui)
 
-[ata](https://defxmafuui.atabook.org/) 
+[ata](https://defxmafuui.atabook.org/) ☆
 
 [strawpage](https://soukokul0ve.straw.page)
 ──★ [Pin](https://pin.it/5jP8RpfSU)
