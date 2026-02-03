@@ -2,7 +2,8 @@
 
  ![](https://komarev.com/ghpvc/?username=strvbykimi&color=lightgrey&label=𑣲sky-casino)
 
-Check out my Art [here](https://cara.app/defxmafuui)
+Check out my Art [here] (https://cara.app/defxmafuui) ᯓ☆
+
 
 [ata](https://defxmafuui.atabook.org/) ☆
 
