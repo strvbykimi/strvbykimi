@@ -1,8 +1,9 @@
-<a href="https://imgbox.com/HIPM4zyP" target="_blank"><img src="https://images2.imgbox.com/81/2e/HIPM4zyP_o.png" alt="image host"/></a>
+![Your Banner](https://s2.ezgif.com/tmp/ezgif-283dbcd64b52640b.gif)
 
- ![](https://komarev.com/ghpvc/?username=strvbykimi&color=lightgrey&label=𑣲sky-casino)
+ ![](https://komarev.com/ghpvc/?username=strvbykimi&color=lightgrey&label=𑣲cuties-teruru's)
 
-Check out my Art [here](https://cara.app/defxmafuui) ᯓ☆
+Check out my Art
+[here](https://cara.app/defxmafuui)</a>ᯓ☆</p>
 
 
 [ata](https://defxmafuui.atabook.org/) ☆
