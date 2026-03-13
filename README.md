@@ -1,4 +1,4 @@
-<a href="https://imgbox.com/yORe8JvC" target="_blank"><img src="https://images2.imgbox.com/2d/48/yORe8JvC_o.jpg" alt="image host"/></a>
+idk wip am lazy
 
 
 
