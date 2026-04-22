@@ -11,8 +11,8 @@
 [strawpage](https://soukokul0ve.straw.page) .
 [pin](https://pin.it/5jP8RpfSU)
 
-   [Prounouns](https://en.pronouns.page/@yoichiirl) .
-[de Prounouns](https://pronomen.net/@yoichiirl) 
+   [Prounouns](https://en.pronouns.page/@strvbykim) .
+[de Prounouns](https://pronomen.net/@strvbykim) 
               
 
  
