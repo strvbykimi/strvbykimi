@@ -27,7 +27,7 @@
 <details> <summary><b>about me</b></summary>
  hello its kim!
  ⸜(｡˃ ᵕ ˂)⸝♡
- dni : normal criteria
+ dni : normal criteria , , , 
  int : people with my fandoms !
  ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
  she / him / angel ,
