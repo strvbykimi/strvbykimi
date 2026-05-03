@@ -1,6 +1,8 @@
 <a href="https://imgbox.com/FEwaCSgs" target="_blank"><img src="https://images2.imgbox.com/72/1a/FEwaCSgs_o.png" alt="image host"/></a>
 
-<p align="center"> 𓇼𓐄 ˚◞𝘠𝘰𝘶 𝘢𝘯𝘥 𝘐 𝘩𝘢𝘷𝘦 𝘢 𝘱𝘳𝘰𝘮𝘪𝘴𝘦, 𝘐 𝘴𝘢𝘪𝘥 𝘐’𝘥 𝘣𝘳𝘪𝘯𝘨 𝘺𝘰𝘶 𝘣𝘢𝘤𝘬 𝘢𝘭𝘪𝘷𝘦.<p/>
+<p align="center"> 𓇼𓐄 ˚◞ 𝘚𝘱𝘢𝘳𝘹𝘪𝘦 𝘢𝘯𝘥 𝘚𝘱𝘢𝘳𝘬𝘭𝘦, 𝘵𝘩𝘦 𝘔𝘢𝘴𝘬 𝘢𝘯𝘥 𝘵𝘩𝘦 𝘍𝘰𝘰𝘭 𝘢𝘳𝘦 𝘧𝘶𝘯𝘥𝘢𝘮𝘦𝘯𝘵𝘢𝘭𝘭𝘺 𝘵𝘩𝘦 𝘴𝘢𝘮𝘦 .<p/>
+
+
 
 <details> <summary><b>socials</b></summary>
  
@@ -20,6 +22,32 @@
  
 ![](https://komarev.com/ghpvc/?username=strvbykimi&label=(///ω///)♪)
 
-<details>
+</details>
+
+<details> <summary><b>about me</b></summary>
+ hello its kim!
+ ⸜(｡˃ ᵕ ˂)⸝♡
+ dni : normal criteria
+ int : people with my fandoms !
+ ◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟
+ she / him / angel ,
+ i believe in kangel !.
+ 𖦹 ׂ 𓈒  ／ ⋆ ۪
+ Check prounouns Page for prounouns + nicknames pls.
+
+ </details>
+
+ <details> <summary><b>fandoms</b></summary>
+ ͝  active:
+ hsr, genshin, danganronpa, blue lock, bungo stray dogs, vocaloid, pjsk, ddlc, cookie run kingdom, cookie run ovensmash, chainsaw man ...
+  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝ 
+ not active:
+ nikke: goddess of Victory, exilium, zenless Zone zero, neverness to everness, haikyu, gundam, jujustsu kaisen, umamusume
+ ୨୧ ⏔⏔⏔⏔♡⏔⏔⏔⏔ ୨୧ ... ... ...
+ in "active", i mean if I talk or post about it frequently!
+
+ </details>
+
+<a href="https://imgbox.com/mqfsFXYW" target="_blank"><img src="https://images2.imgbox.com/da/39/mqfsFXYW_o.png" alt="image host"/></a>
 
 
