@@ -48,6 +48,13 @@
 
  </details>
 
+ 
+
+ <details> <summary><b>ships idk ^_^</b></summary>
+ HI YES i love saiouma (Shuichi x Kokichi) i love yapping abt them except when ur not in the danganronpa fandom but yh i love their Dynamic sm!! On pinterest im also matching w my friend Kyosai (Kyoko x Shuichi) I KNOW THE HC THAT HE LOOKS UP TO HER BUT I CANT HELP IT... also other fandoms: Ichiharu! i've been a proud fan of this ship since 2024, and i've never started to dislike it. I feel like its not getting enough attention okay? Asides that i also love emukasa yes i love them too ok they are my kids >_< RU REALLY READING ALL THIS?? yes? okay ily too. I'M A PROUD SIGZAI FAN , BELIEVER, LOVER, WHATSOEVER!! i love them sm i need more of their merch mweeheh. sunaxa (sunday x anaxa) are my parents trust. GET THEM MORE TO INTERACT I BEG U. yes and I'M ALSO A YUMESHIPPER SO I COPE WITH MY YUMES OKAY?? PLEASE BELIEVE IN ME PLEASE I- lol
+
+ </details>
+
 <a href="https://imgbox.com/mqfsFXYW" target="_blank"><img src="https://images2.imgbox.com/da/39/mqfsFXYW_o.png" alt="image host"/></a>
 
 
