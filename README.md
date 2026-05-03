@@ -12,7 +12,7 @@
 
 [art](https://cara.app/defxmafuui) .
 [ata](https://defxmafuui.atabook.org/) .
-[strawpage](https://soukokul0ve.straw.page) .
+[strawpage](https://siggiezai.straw.page) .
 [pin](https://pin.it/5jP8RpfSU)
 
    [Prounouns](https://en.pronouns.page/@strvbykim) .
